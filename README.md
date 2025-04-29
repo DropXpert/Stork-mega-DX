@@ -1,3 +1,2 @@
-# Stork Auto Refer Auto Farm Multiple Account Supported by DropXpert
-* I will Upload The Script After 50 Stars join my channel for update https://t.me/dropxpert5 
-![dedededededededededededededededeh](https://github.com/user-attachments/assets/4975e925-cca9-46ff-bbc9-8b09f2d50a53)
+# Stork Auto Refer Auto Farm Multiple Account Supported by DropXpert Join Channel for Access Token https://t.me/dropxpert5
+![dgggg](https://github.com/user-attachments/assets/33cc4b77-9cd7-4102-acac-3ab834b087b2)
